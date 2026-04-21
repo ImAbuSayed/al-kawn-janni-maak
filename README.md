@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا غرامي روحي فداك
+> في الليالي أنا أراك
+> كل نبضة في قلبي تهواك
+> ونور عيني دائماً يستناك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
